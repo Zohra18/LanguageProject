@@ -3,7 +3,7 @@
 
 ## Trello :
 
-[Language Project](https://trello.com/b/Al8rxzN1/language-project)
+Par ici => [Language Project](https://trello.com/b/Al8rxzN1/language-project)
 
 
 ## Description :
